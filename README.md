@@ -8,4 +8,4 @@
 
 <p align="center">✧･ﾟ: *✧･ﾟ:*
   
-𖤐 eliza/cressia | she/her | yumeshipper | not a roleplayer | artist/writer | semi-verbal/non-verbal | proship/darkship DNI | minors dni i'm over 18 years old | main fandoms are stranger things, marvel, twst and bbc sherlock
+𖤐 eliza/cressia | she/her | yumeshipper | not a roleplayer | artist/writer | semi-verbal/non-verbal | proship/darkship DNI | minors dni i'm over 18 years old | main fandoms are stranger things, marvel and bbc sherlock
